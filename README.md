@@ -103,6 +103,7 @@ Published in IJETRM.
 
 - LinkedIn: [linkedin.com/in/karthikeya-bojja-781b00320](https://linkedin.com/in/karthikeya-bojja-781b00320)
 - Email: [karthikeyabojja919@gmail.com](mailto:karthikeyabojja919@gmail.com)
+- medium : [https://medium.com/@karthikeyabojja919]
 
 ---
 
